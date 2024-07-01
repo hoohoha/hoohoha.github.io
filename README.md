@@ -1,2 +1,0 @@
-# hoohoha.github.io
-Hi
